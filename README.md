@@ -1,5 +1,7 @@
 ## hal' 🇭🇰
 
+ ***xe/he, 19 butch lesbian. epileptic, artist & photographer^^***
+  >> “great going, flash! with a teammate like you, how can i lose?
 <!--
 **halbarry/halbarry** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
