@@ -1,6 +1,6 @@
 ## hal' 🇭🇰
 
- ***xe/he, 19 butch lesbian. epileptic, artist & photographer^^***
+ ***epileptic, artist & photographer^^ hal jordan fictionkin***
   >> “great going, flash! with a teammate like you, how can i lose?  
 mainly on twitter @flashcentric. no dni.  
- dc & marverl comics
+ dc & marvel comics. barry allen lover & halbarry yaori enjoyer
