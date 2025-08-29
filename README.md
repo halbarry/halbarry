@@ -5,4 +5,7 @@
 >  > 
   mainly on twitter @flashcentric. no dni.  
    dc & marvel comics. barry allen lover & halbarry yaori enjoyer
+   turn that fictional man into a butch NOW!  
+   -  
+   -  
   ![halbarry yuri by toytle!](https://pbs.twimg.com/media/GkfGH_oWYAEQ0dv?format=jpg&name=large)
