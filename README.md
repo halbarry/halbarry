@@ -3,7 +3,7 @@
  ***epileptic, artist & photographer^^ i perform halbarry lesbianism***
   >> “great going, flash! with a teammate like you, how can i lose?”
 
-  mainly on twitter @flashcentric. no dni.  
+  mainly on twitter @flashcentric. no dni. pref 18+ tho  
    dc & marvel comics. barry allen lover & halbarry yaori enjoyer  ♡ 
    turn that fictional man into a butch NOW  
    barry allen slefshipper..?? idk i just love her alot #halbarry
