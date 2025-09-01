@@ -1,4 +1,4 @@
-## hal' 🇭🇰
+## hal' 
 
  ***epileptic, artist & photographer^^ i perform halbarry lesbianism***
   >> “great going, flash! with a teammate like you, how can i lose?”
