@@ -1,6 +1,6 @@
 ## hal' 
 
- ***epileptic, artist & photographer^^ i perform halbarry lesbianism***
+ ***hal jordan fictionkin, epileptic, artist & photographer^^ i perform halbarry lesbianism***
   >> “great going, flash! with a teammate like you, how can i lose?”
 
   mainly on twitter @flashcentric. no dni. pref 18+ tho 
