@@ -5,7 +5,7 @@
 
   mainly on twitter @flashcentric. no dni. pref 18+ tho 
   dc: flashcentric  
-   dc & marvel comics. barry allen lover & halbarry yaori enjoyer  ♡ 
+   dc & marvel comics. barry allen lover & halbarry yaori enjoyer  ♡ i love hal #me patheticThang. Am very multiship halcarol halollie whatever
    
    barry allen slefshipper..?? idk i just love her alot #halbarry
    -  probs on pony town as the flash or hal. if you see me, idm if you sit or chat w me :D tho i can be awkward at first, very bad at starting convos. im very annoying when close tho, may be offtab or afk so pls whisper
