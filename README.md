@@ -8,5 +8,5 @@
    dc & marvel comics. barry allen lover & halbarry yaori enjoyer  ♡ 
    
    barry allen slefshipper..?? idk i just love her alot #halbarry
-   -  probs on pony town as the flash or hal! if you see me, idm if you sit or chat w me :D tho i can be awkward and shy at first...very bad at starting convos. im very annoying when close tho, UM may be offtab or afk so pls whisper
+   -  probs on pony town as the flash or hal. if you see me, idm if you sit or chat w me :D tho i can be awkward at first, very bad at starting convos. im very annoying when close tho, may be offtab or afk so pls whisper
   ![halbarry yuri by toytle!](https://pbs.twimg.com/media/GkfGH_oWYAEQ0dv?format=jpg&name=large) cred toytle
