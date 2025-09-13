@@ -10,7 +10,7 @@
    barry allen slefshipper..?? selectivesahring frens ok
    -  probs on pony town as the flash or hal. if you see me, idm if you sit or chat w me :D tho i can be awkward at first, very bad at starting convos. im very annoying when close tho, may be offtab or afk so pls whisper
  <p align="center">
-  <img src="https://media1.tenor.com/m/stH7BHoMjs8AAAAd/the-boys-starlight.gif" alt="animated" />
+  <img src="https://media1.tenor.com/m/K096gtzoag8AAAAC/black-noir.gif" alt="animated" />
 </p>
-wilson bethel enthusiast
+wilson bethel & black noir enthusiast
 
