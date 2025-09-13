@@ -13,5 +13,3 @@
   <img src="https://media1.tenor.com/m/K096gtzoag8AAAAC/black-noir.gif" alt="animated" />
 </p>
 wilson bethel & black noir enthusiast
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ngno4ir5vc2szsmv5inrregj7e&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ngno4ir5vc2szsmv5inrregj7e&redirect=true)
-
