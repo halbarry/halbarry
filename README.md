@@ -12,4 +12,4 @@
  <p align="center">
   <img src="https://media1.tenor.com/m/K096gtzoag8AAAAC/black-noir.gif" alt="animated" />
 </p>
-wilson bethel & black noir enthusiast. 𝒟𝑀 𝓂𝑒 𝐵𝒶𝓇𝓇𝓎 𝒜𝓁𝓁𝑒𝓃 https://halbarryy.straw.page https://halbarry.atabook.org/
+wilson bethel & black noir enthusiast. 𝒟𝑀 𝓂𝑒 𝐵𝒶𝓇𝓇𝓎 𝒜𝓁𝓁𝑒𝓃 https://halbarryy.straw.page sign ata https://halbarry.atabook.org/
