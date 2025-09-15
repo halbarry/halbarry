@@ -1,6 +1,6 @@
 ## hal' 
 
- ***heavy hal jordan fictionkin, i perform halbarry lesbianism***
+ ***hal jordan fictionkin & copinglink, i perform halbarry lesbianism***
   >> “great going, flash! with a teammate like you, how can i lose?”
 
   mainly on twitter @flashcentric. no dni, i hide freely if im uncomfy. pref 18+ tho   
