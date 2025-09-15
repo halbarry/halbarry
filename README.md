@@ -8,7 +8,7 @@
    dc & marvel comics. barry allen yume, very selective. turns him lesbin
    
    
-   -  probs on pony town as the flash or hal. if you see me, idm if you sit or chat w me. tho i can be awkward at first, very bad at starting convos. may be offtab or afk so pls whisper. im not the best at making friends but i really wnna talk ! i hide/block freely if im uncomfortable
+   -  probs on pony town as the flash or hal. if you see me, idm if you sit or chat w me. tho i can be awkward at first, very bad at starting convos. may be offtab or afk so pls whisper. im not the best at making friends but i really wnna talk ! i hide/block freely if im uncomfortable, but mainly if your just harassing people.
  <p align="center">
   <img src="https://media1.tenor.com/m/K096gtzoag8AAAAC/black-noir.gif"  />
 </p>
