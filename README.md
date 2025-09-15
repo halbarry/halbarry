@@ -5,7 +5,7 @@
 
   mainly on twitter @flashcentric. no dni, i hide freely if im uncomfy. pref 18+ tho   
     dc: flashcentric  
-   dc & marvel comics. barry allen yume, selective. turns him lesbin
+   dc & marvel comics. barry allen yume, very selective. turns him lesbin
    
    
    -  probs on pony town as the flash or hal. if you see me, idm if you sit or chat w me. tho i can be awkward at first, very bad at starting convos. may be offtab or afk so pls whisper. im not the best at making friends but i really wnna talk 
