@@ -1,5 +1,6 @@
 ## hal' 
 
+[![Hits](https://hits.sh/github.com/halbarry/hits.svg?label=67&extraCount=40&color=963b3b&labelColor=4b4b4b)](https://hits.sh/github.com/halbarry/hits/)  
  ***hal jordan fictionkin & copinglink***
   >> “great going, flash! with a teammate like you, how can i lose?”
 
