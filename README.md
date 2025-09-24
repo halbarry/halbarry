@@ -17,7 +17,7 @@
   <img src="https://media1.tenor.com/m/kFwfi0oMqQ4AAAAd/chris-hemsworth-avengers-infinity-war.gif"  />
 </p>  
 <p align="center">
-hello my yaori
+hello my yaori, currently obsessed w thorquill
 </p>
 𝒟𝑀 𝓂𝑒 𝐵𝒶𝓇𝓇𝓎 𝒜𝓁𝓁𝑒𝓃 https://halbarryy.straw.page sign ata https://halbarry.atabook.org/                  
  
