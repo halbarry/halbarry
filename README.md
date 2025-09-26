@@ -6,11 +6,11 @@
 
   mainly on twitter @flashcentric. no dni, pref 18+ tho
     dc: flashcentric  
-   dc & marvel comics, sometimes mcu. i love barry allen & peter quill alot. just know i have alot of personal headcanons so if you dont like that, i suggest blocking me
+   dc & marvel comics, sometimes mcu. i love barry allen & peter quill alot. just know i have alot of personal headcanons so if you dont like that, i suggest blocking me. also i hate thorloki 
    
    
    -  probs on pony town as hal or quill. if you see me, idm if you sit or chat w me tho i can be awkward at first, very bad at starting convos but i love talking! may be offtab or afk so pls whisper. im not the best at making friends, pls int first. be my fren
-   -   i hide/block freely if uncomfy, mainly if you harass people for no reason, be respectful. specific but if u ship thor x loki i will block u LOL
+   -   i hide/block freely if uncomfy, mainly if you harass people for no reason, be respectful. 
  <p align="center">
   <img src="https://media1.tenor.com/m/K096gtzoag8AAAAC/black-noir.gif"  />
 </p>
