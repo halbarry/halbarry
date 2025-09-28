@@ -6,7 +6,7 @@
 
   mainly on twitter @flashcentric. no dni, pref 18+ tho
     dc: flashcentric  
-   dc & marvel comics, sometimes mcu. i love barry allen & peter quill alot. just know i have alot of personal headcanons so if you dont like that, i suggest blocking me. also i hate thorloki, which should be normal
+   dc & marvel comics, sometimes mcu. i love barry allen & peter quill alot. just know i have alot of personal headcanons so if you dont like that, i suggest blocking me. also i hate chr1$ pr@tt and his stans
    
    
    -  probs on pony town as hal or quill. if you see me, idm if you sit or chat w me tho i can be awkward at first, very bad at starting convos but i love talking! may be offtab or afk so pls whisper. im not the best at making friends, but i do usually int first. be my fren
