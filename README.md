@@ -4,13 +4,11 @@
  ***hal jordan fictionkin & copinglink***
   >> “great going, flash! with a teammate like you, how can i lose?”
 
-  mainly on twitter @flashcentric. no dni (except if u ship thorxloki. ill just block you) , pref 18+ tho
+on pt, if you see me idm u interacting unless stated. beware i can be awkward at first but i'm friendly. i hide/block freely.  no dni (except if u ship thorxloki. ill just block you)  
     dc: flashcentric  
-   dc & marvel comics, sometimes mcu. i love barry allen & peter quill. just know i have alot of personal headcanons so if you dont like that, i suggest blocking me. also i hate chr1$ pr@tt and his stans
+   dc/marvel comics, sometimes mcu. i love barry allen & peter quill. just know i have alot of personal headcanons so if you dont like that, i suggest blocking me. also i hate chr1$ pr@tt and his stans
    
-   
-   -  probs on pony town as hal or quill. if you see me, idm you interacting unless stated, though i can be awkward at first but i love talking!
-   -   i hide/block freely if uncomfy, mainly if you harass people for no reason, be respectful. 
+  
  <p align="center">
   <img src="https://media1.tenor.com/m/K096gtzoag8AAAAC/black-noir.gif"  />
 </p>
