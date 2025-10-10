@@ -6,7 +6,7 @@
 
 no dni i hide/block freely
  
- -  dc/marvel comics, sometimes mcu. i love barry allen & peter quill. just know i have alot of personal headcanons so if you dont like that, i suggest blocking me. also i hate chr1$ pr@tt and his stans
+ - just know i have alot of personal headcanons so if you dont like that, i suggest blocking me. also i hate chr1$ pr@tt and his stans
    
   
  <p align="center">
