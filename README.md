@@ -5,7 +5,7 @@
   >> “great going, flash! with a teammate like you, how can i lose?”
 
 no dni i hide/block freely
-    dc: flashcentric  
+ 
  -  dc/marvel comics, sometimes mcu. i love barry allen & peter quill. just know i have alot of personal headcanons so if you dont like that, i suggest blocking me. also i hate chr1$ pr@tt and his stans
    
   
