@@ -26,7 +26,7 @@ no dni i hide/block freely
   <img src="https://media1.tenor.com/m/kFwfi0oMqQ4AAAAd/chris-hemsworth-avengers-infinity-war.gif"  />
 </p>  
 <p align="center">
-hello my yaori, currently obsessed w thorquill & quillock
+hello my yaori, currently obsessed w literally every star lord ship ever
 </p>
 
  
