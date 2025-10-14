@@ -1,7 +1,7 @@
 ## hal' 
 
 [![Hits](https://hits.sh/github.com/halbarry/hits.svg?label=bisexual%20peter%20quill&extraCount=40&color=963b3b&labelColor=4b4b4b)](https://hits.sh/github.com/halbarry/hits/)  
- ***hal jordan fictionkin & copinglink***
+ ***hal jordan fictkin, peter quill lover***
   >> “great going, flash! with a teammate like you, how can i lose?”
 
 no dni i hide/block freely
