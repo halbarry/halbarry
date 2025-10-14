@@ -18,14 +18,17 @@ no dni i hide/block freely
 </p>  
 <p align="right">
  <p align="right">
-  <img src="https://64.media.tumblr.com/07675e34fe05e3207d660c1301e0138a/804b11d7acd04a61-60/s100x200/9b734e64fbafa3d4a4a2ceb5e012d8da3d4c2a82.gifv"  />
+  <img src="https://64.media.tumblr.com/07675e34fe05e3207d660c1301e0138a/804b11d7acd04a61-60/s100x200/9b734e64fbafa3d4a4a2ceb5e012d8da3d4c2a82.gifv" 
 </p>  
 <p align="right">
 
  <p align="center">
-  <img src="https://media1.tenor.com/m/kFwfi0oMqQ4AAAAd/chris-hemsworth-avengers-infinity-war.gif"  />
+  <img src="https://github.com/user-attachments/assets/b57acebb-3018-4f2f-ba66-30bf0dac3749" />
+
 </p>  
 <p align="center">
+  <img width="1013" height="268" alt="image" src="https://github.com/user-attachments/assets/ebf28566-04f4-43aa-8281-d00d71f620d9" />
+
 hello my yaori, currently obsessed w literally every star lord ship ever
 </p>
 
