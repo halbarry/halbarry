@@ -6,7 +6,7 @@
 
 no dni i hide/block freely
  
- - just know i have alot of personal headcanons so if you dont like that, i suggest blocking me. also i hate chr1$ pr@tt and his stans. mcu gotg is my comfort.
+ - just know i have alot of personal headcanons so if you dont like that, i suggest blocking me. also i hate chr1$ pr@tt and his stans. mcu gotg is my comfort. other hal fictkins iwc 
      https://guns.lol/halbarry
 
   <p align="right">
