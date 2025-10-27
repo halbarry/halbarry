@@ -19,8 +19,6 @@
 </p>  
 <p align="right">
 
- <p align="center">
-  <img src="https://github.com/user-attachments/assets/b57acebb-3018-4f2f-ba66-30bf0dac3749" />
 
 </p>  
 <p align="center">
