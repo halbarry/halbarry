@@ -1,8 +1,7 @@
 ##
 
 [![Hits](https://hits.sh/github.com/halbarry/hits.svg?label=bisexual%20peter%20quill&extraCount=40&color=963b3b&labelColor=4b4b4b)](https://hits.sh/github.com/halbarry/hits/)  
-im like afk alot of the time because im even in bed and sleeping or outside. No dni idc i int w everyone 
-
+AFK most of the time, GOTG is my comfort media ! I love them all dearly.
 
  https://guns.lol/halbarry
 
