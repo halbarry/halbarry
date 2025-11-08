@@ -1,7 +1,7 @@
 ##
 
 [![Hits](https://hits.sh/github.com/halbarry/hits.svg?label=bisexual%20peter%20quill&extraCount=40&color=963b3b&labelColor=4b4b4b)](https://hits.sh/github.com/halbarry/hits/)  
-AFK most of the time, GOTG is my comfort media ! I love them all dearly. And my friends.
+AFK most of the time, GOTG is my comfort media ! I love them all dearly. And my friends. You'll often see me as Star Lord
 
  https://guns.lol/halbarry
 
