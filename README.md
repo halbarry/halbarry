@@ -23,7 +23,7 @@ AFK most of the time, GOTG is my comfort media ! I love them all dearly. And my 
 <p align="center">
   <img width="1013" height="268" alt="image" src="https://github.com/user-attachments/assets/ebf28566-04f4-43aa-8281-d00d71f620d9" />
 
-Hello my yaori, currently obsessed w literally every star lord ship ever. Riderquillmora hook me up please..
+Hello my yaori, currently obsessed w literally every star lord ship ever. Riderquillmora hook me up please..I heart sambucky
 </p>
 
  
