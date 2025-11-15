@@ -17,7 +17,7 @@ AFK most of the time, GOTG is my comfort media . Nova and Star Lord <3
   <img src="https://64.media.tumblr.com/07675e34fe05e3207d660c1301e0138a/804b11d7acd04a61-60/s100x200/9b734e64fbafa3d4a4a2ceb5e012d8da3d4c2a82.gifv" 
 </p>  
 <p align="right">
-dni comic stucky fans, iwcaution -18. comics mainly .
+dni comic stucky fans . i like star lord alot - richie
 
 
  
