@@ -12,7 +12,7 @@
   <img src="https://github.com/user-attachments/assets/d57b8512-60d5-48c4-a16e-095a50cf52e8" />
 </p>  
 <p align="center">
-  <a href="https://github.com/riderquill">@riderquill</a>
+  <a href="https://github.com/riderquill">@riderquill</a> <ins> read </ins>
   </p>
 </p>  
 
@@ -23,8 +23,8 @@
  <p align="center">
   <img src="https://64.media.tumblr.com/07675e34fe05e3207d660c1301e0138a/804b11d7acd04a61-60/s100x200/9b734e64fbafa3d4a4a2ceb5e012d8da3d4c2a82.gifv" 
 </p>  
-<p align="right">
-dni comic stucky fans . i like star lord alot - richie
+<p align="center">
+
 
 
  
