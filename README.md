@@ -1,6 +1,6 @@
 
  <p align="center">
-   SAFK mostly, GOTG is my comfort media . Nova and Star Lord <3 I'm always free to interact with unless stated, I swear I don't bite 
+  Nova and Star Lord <3 I'm always free to interact with unless stated, I swear I don't bite 
 </p>  
 
  <p align="center">
