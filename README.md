@@ -12,7 +12,7 @@
   <img src="https://github.com/user-attachments/assets/d57b8512-60d5-48c4-a16e-095a50cf52e8" />
 </p>  
 <p align="center">
-  <a href="https://github.com/riderquill">@riderquill</a> <ins> read </ins>
+  <a href="https://github.com/riderquill">@riderquill</a> <ins> read for info</ins>
   </p>
 </p>  
 
