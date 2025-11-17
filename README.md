@@ -5,7 +5,9 @@
   AFK most of the time, GOTG is my comfort media . Nova and Star Lord <3 . I'm always free to interact with unless stated, I swear I don't bite
 </p>  
  <p align="center">
- 
+ <p align="center">
+  <a href="https://github.com/riderquill">@riderquill</a>
+  </p>
 </p>  
   <p align="right">
   <img src="https://64.media.tumblr.com/537aab2f7aa078055b5da46c7dd3eb3e/804b11d7acd04a61-f3/s400x600/dba9b0dcf3565647d00cfb7d795d67db60b11dc9.pnj"  />
