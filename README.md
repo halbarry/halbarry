@@ -1,6 +1,6 @@
 
  <p align="center">
-  Nova and Star Lord <3 I'm always free to interact with unless stated, I swear I don't bite 
+  Nova and Star Lord <3 I'm always free to interact with unless stated, I swear I don't bite. Usually on safe server as most of my friends are on there
 </p>  
 
  <p align="center">
