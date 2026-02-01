@@ -1,6 +1,6 @@
 
  <p align="center">
-  rarely ever active nowadays, add me @fartlord642 on discord. daredevil lover
+  rarely ever active nowadays, add me @fartlord642 on discord. daredevil lover & starlord main
 </p>  
 
  <p align="center">
