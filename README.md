@@ -1,6 +1,7 @@
 
  <p align="center">
   rarely ever active nowadays, add me @fartlord642 on discord. daredevil lover & starlord/dr strange main
+  i dont interact much with people on pt. sorry
 </p>  
 
  <p align="center">
