@@ -1,7 +1,7 @@
 
  <p align="center">
-  rarely ever active nowadays, add me @fartlord642 on discord. daredevil lover & starlord/dr strange main
-  i dont interact much with people on pt. sorry. i am nice i swear
+  rarely ever active nowadays, @fartlord642 on discord. daredevil lover and star lord otp
+  i dont interact much with people on pt. sorry. i am nice i swear anyone can int idc 
 </p>  
 
  <p align="center">
