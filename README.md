@@ -1,6 +1,6 @@
 
  <p align="center">
-  rarely ever active nowadays, @fartlord642 on discord. daredevil lover and star lord otp. int with caution
+  rarely ever active nowadays, @fartlord642 on discord. daredevil lover and star lord otp. int with caution, youll usually see me near one of the trees near bakery.
 </p>  
 
  <p align="center">
