@@ -6,7 +6,7 @@
  <p align="center">
 
 <p align="center">
-  <a href="https://github.com/riderquill">@riderquill</a> <ins> read for info</ins> 
+  <a href="https://github.com/riderquill">@riderquill</a> <ins> read for info</ins> + alt. @puppyleon
   </p> 
   <p align="center">
   +
