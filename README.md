@@ -1,6 +1,6 @@
 
  <p align="center">
-  rarely ever active nowadays, @fartlord642 on discord. daredevil lover + dr easterman pr manager. im into outlast trials atm. int with caution, youll usually see me near one of the trees near bakery.
+  rarely ever active nowadays, @fartlord642 on discord. daredevil lover + dr easterman pr manager. im into outlast trials atm. int with caution, youll usually see me near one of the trees near bakery. i interact with darkship stuff
 </p>  
 
  <p align="center">
