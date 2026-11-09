@@ -1,6 +1,6 @@
 
  <p align="center">
-  rarely ever active nowadays, @fartlord642 on discord. daredevil lover + dr easterman pr manager. im into outlast trials atm. int with caution, youll usually see me near one of the trees near bakery. i interact with darkship stuff
+  rarely ever active nowadays, @fartlord642 on discord. daredevil lover + dr easterman lover. i'm into outlast trials atm. int with caution, you'll usually see me near one of the trees near bakery. i interact with dark media. butch lesbian who loves easterwoman.
 </p>  
 
  <p align="center">
