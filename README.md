@@ -1,12 +1,12 @@
 
  <p align="center">
-  rarely ever active nowadays, @fartlord642 on discord. daredevil lover + dr easterman lover. i'm into outlast trials atm. int with caution, you'll usually see me near one of the trees near bakery. i interact with dark media. butch lesbian who loves easterwoman.
+  rarely ever active nowadays, @fartlord642 on discord. i interact with dark media. dr easterman lover.
 </p>  
 
  <p align="center">
 
 <p align="center">
-  <a href="https://github.com/riderquill">@riderquill+ <a href="https://github.com/puppyleon">@puppyleon</a> </a> <ins> read for info</ins> 
+  <a href="https://github.com/riderquill">@riderquill <a href="https://github.com/puppyleon">@puppyleon</a> </a> <ins> old links</ins> 
   </p> 
   <p align="center">
   +
